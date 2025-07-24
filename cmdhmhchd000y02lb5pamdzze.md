@@ -4,6 +4,7 @@ datePublished: Mon Jul 14 2025 00:00:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmhchd000y02lb5pamdzze
 slug: scenic-flight-with-father-in-law
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753375464231/f8931280-9134-4b10-90fb-94305b6d0432.jpeg
+tags: aviation
 
 ---
 
