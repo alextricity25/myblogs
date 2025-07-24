@@ -4,6 +4,7 @@ datePublished: Mon Sep 24 2018 11:10:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmgxi3000l02ib4d9qeknv
 slug: christian-commitment
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753375445437/ec64f2bd-4d25-4823-b01d-9f0870d15dee.jpeg
+tags: jesus
 
 ---
 
