@@ -3,11 +3,9 @@ title: "Paella!"
 datePublished: Wed Feb 07 2018 17:41:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmh5cp000y02l10hkqdqn7
 slug: paella
+tags: food
 
 ---
-
-
-# Paella!
 
 *February 07, 2018*
 
@@ -17,6 +15,6 @@ A more detailed recipe will be reserved for another post. I figured, since I've 
 
 In the meantime the video will do.
 
-[![Paella Cooking Video](https://cdn.hashnode.com/res/hashnode/image/upload/v1753375455926/20af86aa-bafa-4622-bcbf-ea20ae507b8c.jpeg)](https://www.youtube.com/watch?v=6HMj85BSCwo)
+[![Paella Cooking Video](https://cdn.hashnode.com/res/hashnode/image/upload/v1753375455926/20af86aa-bafa-4622-bcbf-ea20ae507b8c.jpeg align="left")](https://www.youtube.com/watch?v=6HMj85BSCwo)
 
 Paella is by-far my favorite dish made by my parents. I hope this record will live on for many years.
