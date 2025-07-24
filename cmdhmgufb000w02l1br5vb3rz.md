@@ -4,6 +4,7 @@ datePublished: Mon Jul 14 2025 00:00:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmgufb000w02l1br5vb3rz
 slug: check-out-my-printables-makes
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753375440916/c3ab6479-32be-4ce2-9f51-21774c1ea878.png
+tags: 3dprinting
 
 ---
 
