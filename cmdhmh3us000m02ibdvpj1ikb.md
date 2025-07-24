@@ -3,6 +3,7 @@ title: "My First Solo - 04/09/2024"
 datePublished: Mon Jul 14 2025 00:00:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmh3us000m02ibdvpj1ikb
 slug: my-first-solo-flight
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753382904770/80cbcaed-cf8e-4a17-97c9-f7f41987e209.jpeg
 ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1753382756752/30a331d3-3beb-49d6-b304-31a12500796b.jpeg
 tags: aviation
 
