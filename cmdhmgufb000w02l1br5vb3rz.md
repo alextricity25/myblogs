@@ -8,13 +8,11 @@ tags: 3dprinting
 
 ---
 
-
-# Check out my printables makes
 *July 14, 2025*
 
-Check out my printables makes at https://www.printables.com/@alextricity_237831/makes
+Check out my printables makes at https://www.printables.com/@alextricity\_237831/makes
 
-![3D Printing Makes](https://cdn.hashnode.com/res/hashnode/image/upload/v1753375439186/0857af04-522d-40a5-b7ef-e0eb64792fbf.png)
+![3D Printing Makes](https://cdn.hashnode.com/res/hashnode/image/upload/v1753375439186/0857af04-522d-40a5-b7ef-e0eb64792fbf.png align="left")
 
 The post appears to be a brief invitation to view the author's 3D printing projects on the Printables platform.
 
