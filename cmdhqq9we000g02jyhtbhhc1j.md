@@ -4,11 +4,9 @@ datePublished: Tue Aug 27 2019 12:04:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhqq9we000g02jyhtbhhc1j
 slug: my-personal-reading-goals
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753382599655/fa7f26be-32ee-4097-9d1a-7482e2d4ad73.jpeg
+tags: books
 
 ---
-
-
-# My Personal Reading Goals
 
 *August 27, 2019*
 
@@ -32,4 +30,4 @@ How will I obtain these books? Probably with the use of the median that's so pro
 
 Anything more than these four categories would be too ambitions for me. I don't consider myself a fast reader, it's more of an exercise for me. Like going to the gym - sometimes I just have to force myself. By establishing a healthy consistent habit I hope to find joy in the bindings I surround myself with. I even might find some rest it in, to the point where if I had a choice to either watch TV or read one of these books, I would chose the books.
 
-![Books on shelf](https://cdn.hashnode.com/res/hashnode/image/upload/v1753382598365/ef1c9755-ed99-400d-87b6-35bacf37e7c9.jpeg)
+![Books on shelf](https://cdn.hashnode.com/res/hashnode/image/upload/v1753382598365/ef1c9755-ed99-400d-87b6-35bacf37e7c9.jpeg align="left")
