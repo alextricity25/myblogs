@@ -8,23 +8,23 @@ tags: travel
 
 ---
 
-In June of 2025, my family and I visited Terlingua and stayed in inflatable bubbles with clear vinal ceilings. Here is a concise things of what we think you should know before booking!
+In June 2025, my family and I visited Terlingua and stayed in inflatable bubbles with clear vinyl ceilings. If you’re considering booking, here are a few key things to know:
 
-1. The bubbles are spaced far apart. Bubble Terlingua has several bubbles scattered throughout the city. There’s a section of “community bubbles” that share a pool and are separated by concrete walls—this is where we stayed. Keep in mind that if you are going with family and staying in different bubbles, it’s very possible that you will end up staying about 10-15 minutes apart from one another.
+1. The bubbles are spaced far apart. Bubble Terlingua offers several bubbles scattered throughout the area. There’s a section of “community bubbles” that share a pool and are separated by concrete walls—this is where we stayed. If you’re traveling with family and booking multiple bubbles, be aware that you could end up 10–15 minutes apart.
     
-    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753392067975/87c4efce-207d-4b0a-9a6f-9b718afbc2e3.jpeg align="center")
-    
-    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753392095357/715ed1d1-9b1f-47ac-b8f6-cc7fa717d76e.jpeg align="center")
-    
-    They also have an area a little further out near a restaurant called “Venga”. This is where my sister-in-law stayed. WARNING: The roads are bit rough in this area!  
+    1. ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753394997909/154d3815-1262-4ae1-aeb2-80c06f229614.jpeg align="center")
+        
+2. There’s another area near the restaurant “Venga,” where my sister-in-law stayed. Heads up: the roads leading here are rough!
     
     %[https://youtu.be/N7PCUGQL-Cw] 
     
-    They also have some bubbles with their own pool on top of a hill! My father-in-law stayed in this one.
+3. Some bubbles have their own private pool on top of a hill. My father-in-law stayed in one of these.
     
-    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753394486618/d1c305ee-1fa0-4f0f-9784-10527dd70fb3.jpeg align="center")
+    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753395037463/e227e644-9ad5-418b-962a-ddca9c4bbb04.jpeg align="center")
+    
+4. It’s about an hour’s drive to Big Bend National Park.
+    
+5. Our favorite restaurant was “Venga” for its lively atmosphere and outstanding food—the smash burger is a must-try. We also visited Starlight Diner and Espresso y Poco Mas. Starlight Diner had live music and a fun vibe, but the cafeteria-style food was underwhelming.
     
 
-2. It’s about a one hour drive to Big Bend National Park
-    
-3. Our favorite restaurant was easily “Venga.” We also tried Starlight Diner and Espresso y Poco Mas. Starlight Diner had a great atmosphere with live music, but the cafeteria-style food was underwhelming. Venga stood out for its lively, unique vibe and outstanding food—their smash burger is a must-try.
+Overall, Bubble Terlingua is a unique experience—just be prepared for some distance between accommodations and a bit of rugged driving!
