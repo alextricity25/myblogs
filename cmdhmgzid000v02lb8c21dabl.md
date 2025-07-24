@@ -3,6 +3,7 @@ title: "Fixing the upower warning - WSL/ZSH/Spaceship prompt"
 datePublished: Fri Dec 11 2020 00:00:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmgzid000v02lb8c21dabl
 slug: fixing-upower-warning-wsl-zsh-spaceship
+tags: computers
 
 ---
 
