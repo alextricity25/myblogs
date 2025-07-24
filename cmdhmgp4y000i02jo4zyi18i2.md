@@ -4,6 +4,7 @@ datePublished: Thu Feb 14 2019 17:53:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmgp4y000i02jo4zyi18i2
 slug: a-review-of-how-we-got-bible
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753375434856/8ae95689-68b1-4124-9ae2-5dc0a549602f.jpeg
+tags: books, jesus
 
 ---
 
