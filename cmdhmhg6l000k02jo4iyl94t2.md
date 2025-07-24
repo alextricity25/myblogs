@@ -4,6 +4,7 @@ datePublished: Sun Sep 16 2018 15:55:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmhg6l000k02jo4iyl94t2
 slug: why-do-i-believe-in-jesus
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753375469103/f5f62392-a98d-41b8-8c1e-30bed66fc6f1.jpeg
+tags: jesus
 
 ---
 
