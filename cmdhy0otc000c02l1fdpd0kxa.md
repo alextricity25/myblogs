@@ -14,17 +14,17 @@ In June 2025, my family and I visited Terlingua and stayed in inflatable bubbles
     
     1. ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753394997909/154d3815-1262-4ae1-aeb2-80c06f229614.jpeg align="center")
         
-2. There’s another area near the restaurant “Venga,” where my sister-in-law stayed. Heads up: the roads leading here are rough!
+2. There’s another area near the restaurant “Venga,” where my sister-in-law stayed. Heads up: the roads leading here are rough!  
     
-    <iframe width="1641" height="786" src="https://www.youtube.com/embed/N7PCUGQL-Cw"></iframe>
+    <iframe width="641" height="859" src="https://www.youtube.com/embed/6R-OmwxTNls"></iframe>
     
-3. Some bubbles have their own private pool on top of a hill. My father-in-law stayed in one of these.
+    Some bubbles have their own private pool on top of a hill. My father-in-law stayed in one of these.
     
     ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753395037463/e227e644-9ad5-418b-962a-ddca9c4bbb04.jpeg align="center")
     
-4. It’s about an hour’s drive to Big Bend National Park.
+3. It’s about an hour’s drive to Big Bend National Park.
     
-5. Our favorite restaurant was “Venga” for its lively atmosphere and outstanding food—the smash burger is a must-try. We also visited Starlight Diner and Espresso y Poco Mas. Starlight Diner had live music and a fun vibe, but the cafeteria-style food was underwhelming.
+4. Our favorite restaurant was “Venga” for its lively atmosphere and outstanding food—the smash burger is a must-try. We also visited Starlight Diner and Espresso y Poco Mas. Starlight Diner had live music and a fun vibe, but the cafeteria-style food was underwhelming.
     
 
 Overall, Bubble Terlingua is a unique experience—just be prepared for some distance between accommodations and a bit of rugged driving!
