@@ -14,9 +14,7 @@ In June 2025, my family and I visited Terlingua and stayed in inflatable bubbles
     
     1. ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753394997909/154d3815-1262-4ae1-aeb2-80c06f229614.jpeg align="center")
         
-2. There’s another area near the restaurant “Venga,” where my sister-in-law stayed. Heads up: the roads leading here are rough!  
-    
-    %[https://youtu.be/N7PCUGQL-Cw] 
+2. There’s another area near the restaurant “Venga,” where my sister-in-law stayed. Heads up: the roads leading here are rough!
     
     %[https://youtu.be/N7PCUGQL-Cw] 
     
