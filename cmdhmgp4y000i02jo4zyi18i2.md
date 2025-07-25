@@ -3,13 +3,11 @@ title: "A Review of "How We Got The Bible""
 datePublished: Thu Feb 14 2019 17:53:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmgp4y000i02jo4zyi18i2
 slug: a-review-of-how-we-got-bible
-cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753375434856/8ae95689-68b1-4124-9ae2-5dc0a549602f.jpeg
 tags: books, jesus
 
 ---
 
-
-# A Review of "How We Got The Bible"
+![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753449381938/e41f5bf8-22f9-4d2b-ad29-de3c19d4524d.jpeg align="center")
 
 *February 14, 2019*
 
@@ -47,4 +45,4 @@ Some sections that stood out to me:
 
 *What can be said in favor of the American revision? First, the revision of 1901 is based on a Greek text which is far superior to that employed by the King James translators. Many of the earlier and most important New Testament manuscripts that were not known in 1611 were accessible to the revision committee, and accordingly its translation was based on these manuscripts. -pg. 190*
 
-![How We Got the Bible book cover](https://cdn.hashnode.com/res/hashnode/image/upload/v1753375433760/568b7813-50df-4f08-b678-05c978675bf4.jpeg)
+![How We Got the Bible book cover](https://cdn.hashnode.com/res/hashnode/image/upload/v1753375433760/568b7813-50df-4f08-b678-05c978675bf4.jpeg align="left")
