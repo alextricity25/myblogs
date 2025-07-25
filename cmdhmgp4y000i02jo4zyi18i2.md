@@ -3,12 +3,11 @@ title: "A Review of "How We Got The Bible""
 datePublished: Thu Feb 14 2019 17:53:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmgp4y000i02jo4zyi18i2
 slug: a-review-of-how-we-got-bible
+cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1753449649454/62aae7f0-f7bf-4684-b024-01a46e1b5ec4.jpeg
 ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1753449438746/8861bcc3-9704-48d5-b1ec-0c0db08cdfc8.jpeg
 tags: books, jesus
 
 ---
-
-![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753449381938/e41f5bf8-22f9-4d2b-ad29-de3c19d4524d.jpeg align="center")
 
 *February 14, 2019*
 
