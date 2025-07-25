@@ -3,6 +3,7 @@ title: "A Review of "How We Got The Bible""
 datePublished: Thu Feb 14 2019 17:53:00 GMT+0000 (Coordinated Universal Time)
 cuid: cmdhmgp4y000i02jo4zyi18i2
 slug: a-review-of-how-we-got-bible
+ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1753449438746/8861bcc3-9704-48d5-b1ec-0c0db08cdfc8.jpeg
 tags: books, jesus
 
 ---
