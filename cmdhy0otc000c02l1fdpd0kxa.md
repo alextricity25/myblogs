@@ -16,7 +16,7 @@ In June 2025, my family and I visited Terlingua and stayed in inflatable bubbles
         
 2. There’s another area near the restaurant “Venga,” where my sister-in-law stayed. Heads up: the roads leading here are rough!
     
-    %[https://youtu.be/N7PCUGQL-Cw] 
+    <iframe width="1641" height="786" src="https://www.youtube.com/embed/N7PCUGQL-Cw"></iframe>
     
 3. Some bubbles have their own private pool on top of a hill. My father-in-law stayed in one of these.
     
