@@ -12,7 +12,7 @@ In June 2025, my family and I visited Terlingua and stayed in inflatable bubbles
 
 1. The bubbles are spaced far apart. Bubble Terlingua offers several bubbles scattered throughout the area. There’s a section of “community bubbles” that share a pool and are separated by concrete walls—this is where we stayed. If you’re traveling with family and booking multiple bubbles, be aware that you could end up 10–15 minutes apart.
     
-    1. ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753394997909/154d3815-1262-4ae1-aeb2-80c06f229614.jpeg align="center")
+   ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1753394997909/154d3815-1262-4ae1-aeb2-80c06f229614.jpeg align="center")
         
 2. There’s another area near the restaurant “Venga,” where my sister-in-law stayed. Heads up: the roads leading here are rough!  
     
