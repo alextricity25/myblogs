@@ -1,5 +1,7 @@
 ---
 title: "Flying over glaciers in Alaska"
+seoTitle: "Flying Over Glaciers in Alaska: My Scenic Flight Experience"
+seoDescription: "Photos of what it’s like to fly over Alaska’s glaciers with a flight lesson in Anchorage."
 datePublished: Mon Jul 28 2025 18:55:28 GMT+0000 (Coordinated Universal Time)
 cuid: cmdngx9n7000702lc74xp5aaa
 slug: flying-over-glaciers-in-alaska
