@@ -7,7 +7,7 @@ cuid: cmevjt0nr000a02jo0u0whj1i
 slug: caprese-sandwich
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1756394220102/84b07147-f20b-4ac7-9643-7d7fabf34c71.jpeg
 ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1756394275408/ee8ebc2f-36a8-44dd-b7ec-5d4d43d1af49.jpeg
-tags: cooking
+tags: food, cooking
 
 ---
 
